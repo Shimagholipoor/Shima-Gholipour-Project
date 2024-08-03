@@ -13,4 +13,6 @@ To access the main Article re-read, copy the following google drive link:
 https://drive.google.com/drive/folders/1cTXAv4unJ5422idWRvmvIG66MnqhVKOq?usp=sharing
 To access the re-written Article re-read, copy the following google drive link:
 https://drive.google.com/drive/folders/1XABn0MdDtgZ5zriK6gk3BjWhToScHJFI?usp=sharing
+plagiarism check Result: https://s32.picofile.com/file/8478035368/plagiarism.jpg
+AI CHECK Result: https://s32.picofile.com/file/8478035442/AI.jpg
 
